@@ -13,4 +13,4 @@
 
 ---
 
-Latest update: just bought a domain for the inception of a new journey.
+Latest update: just bought a domain with hopes for the inception of a new journey.
