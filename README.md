@@ -10,3 +10,7 @@
 ---
 
 ✨ Welcome to my GitHub profile! As a front-end developer enthusiast with aspirations to dive deep into full-stack development, I am passionate about crafting elegant solutions for complex problems. Let's create something extraordinary together! 🚀
+
+---
+
+Latest update: just bought a domain for the inception of a new journey.
